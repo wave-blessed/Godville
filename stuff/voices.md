@@ -14,3 +14,8 @@ https://godville.net/gods/%D0%AD%D0%B2%D0%B8%D1%82%D1%8D%D0%BB%D1%8C
 I heard someone shouting from the trader's hut: “If we had to butcher our own meat there'd be more vegetarians.”
 
 
+В районе местной усыпальницы что-то гремит: «Где гора отрезанных злодейских голов у моего алтаря? Что ты вообще сделал во имя добра?».
+Богиня Иса Эар и её герой Герой Мастер Ши Фу.
+Возраст 2 года 9 месяцев
+Характер миролюбивый
+Гильдия Кровожадные зефирки
